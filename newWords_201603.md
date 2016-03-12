@@ -1,0 +1,1 @@
+1. The money is wall street is *voracious* and which is the *steeped* in culture and tradition. But the *eniment* fund manager will not invest *indiscriminately* as the markets are *replete* with bubbles and crashes.
